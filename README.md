@@ -51,3 +51,7 @@ Again Convert Thoughts Into Actions for Re-Validation.
 
 https://www.nature.com/articles/ncomms13098
 
+
+
+Inline-style: 
+![alt text](https://github.com/zakinder/Motor-Imagery-Tasks/blob/main/1st_Virtual_Twitter.png "1st Virtual Twitter")
