@@ -44,7 +44,10 @@ Again Convert Thoughts Into Actions for Re-Validation.
 
 
 
-# Next : Human or Unknown controller of MCD.
 
 
+# Next : Freedom: Predict Human Choices before Selection and taking control.
+
+
+https://www.nature.com/articles/ncomms13098
 
