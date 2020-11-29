@@ -14,6 +14,9 @@ Convert Thoughts Into Actions
 7. 100% coverage. [I Robot] or [Judgment Day on Earth] or [Justice on Earth] 
 8. Here is the catch, stage of 2 objects[Red vs Blue] and who is behind the curtain. I am here across the stage watching show but I have already left. Watching another show. So who is across the stage and curtain. 
 
+
+https://www.youtube.com/watch?v=jyUTZ_R9zGc
+
 # Next : Validate Forgiveness Of Sins
 
 - What do we call Dua in English?
@@ -63,6 +66,12 @@ Inline-style:
 *Mediumship and *Mind Control Devices of crossing limits and gain of power.
 
 
+
+The fact is that I choose not to sell my religion (Islam) to USA Gov above methods for minority (Muslim) selection from their menu-list.
+
+
+
+Sakinder Ali
 
 
 
