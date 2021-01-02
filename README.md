@@ -1,5 +1,12 @@
 `Not me its All Googller Stuff.`
 
+
+Mankind recalled once again else Judgement day is too close.
+
+Let's go against Mind Control Devices from satellites to per device level.
+
+Use uvm (Universal Verification Methodology) to Stop MCD (Mind Control Devices).
+
 # Motor-Imagery-Tasks
 
 Convert Thoughts Into Actions
